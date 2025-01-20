@@ -1,6 +1,6 @@
-<a href="https://dar.vin/lunaexec"><img src="https://img.shields.io/badge/Shrimp%20Game%20Script-%20Download-purple?style=for-the-badge&logo=roblox" height="70"></a>
+<a href="https://dar.vin/shrimp"><img src="https://img.shields.io/badge/Shrimp%20Game%20Script-%20Download-purple?style=for-the-badge&logo=roblox" height="70"></a>
 
-<a href="https://dar.vin/lunaexec"><img src="https://i.ytimg.com/vi/24TRURR9CHM/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLB-FxqR8Pl3i__nttfZLpkNeHOSaQ" height="400"></a>
+<a href="https://dar.vin/shrimp"><img src="https://i.ytimg.com/vi/24TRURR9CHM/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLB-FxqR8Pl3i__nttfZLpkNeHOSaQ" height="400"></a>
 
 # Shrimp Game Script ⭐ Shrimp Game Script Roblox ⭐ Shrimp Game Script & Exploit Free 2025
 
